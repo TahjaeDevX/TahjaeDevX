@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @TahjaeUltra
-- 🏛 Official Owner of Tosverse Studios
+- 🏛 An alt of the official Founder of Tosverse Studios
