@@ -2,4 +2,4 @@
 - 👋 Hi, I’m @TahjaeDevX
 - 🏛 An alt of the official Founder of Tosverse Studios
 # My Development
-- Am currently working on AI,Javascript, Minecraft Mods, and so much more
+- Check my [original profile](https://github.com/TahjaeDev)
